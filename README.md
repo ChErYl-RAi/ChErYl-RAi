@@ -1,3 +1,2 @@
-
-- Pronouns: She/Her
+welcome to the hallway of abandoned bullshit
 
